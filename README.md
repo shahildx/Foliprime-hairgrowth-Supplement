@@ -1,1 +1,2 @@
 # Foliprime-hairgrowth-Supplement
+FoliPrime is the hair growth formula that brings you back long and lustrous hair. It works very well on all types of hair and can be used by anyone who wants healthy, shiny hair. The main ingredients are 100% natural and undergo certain clinical tests before they are sent to customers.Thousands of Men and women have transformed their follicles problem with the use of this formula. You can get back your fine and thick hair or grow your hair faster than ever before!!.Checkout this link to know more:https://www.foliprimebuy.us/
